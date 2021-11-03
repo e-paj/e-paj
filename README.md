@@ -6,7 +6,7 @@
 
 - 💞️ I’m looking to collaborate on a variety of projects. Be it a small one like the project I'm currently doing, *Machine Learning Projects*, or a big one. It does not matter!! I'm looking forward to being part of a project I've never done before.
 
-- 📫 How to reach me: please email me using pajanconie@gmail.com or message me at linkedin www.linkedin.com/in/esnobipajanconi
+- 📫 How to reach me: message me at linkedin www.linkedin.com/in/esnobipajanconi
 
 <!---
 e-paj/e-paj is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
