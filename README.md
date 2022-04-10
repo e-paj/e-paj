@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @e-paj or Esnobi Pajanconi.
+- 👋 Hi, I’m @e-paj or Esnobi P.
 
 - 👀 I’m interested in a lot of things. If we're talking about music, then K-pop is my go to. If we're talking about hobbies, then painting and watching series are some that I like to do.
 
